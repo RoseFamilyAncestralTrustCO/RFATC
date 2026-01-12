@@ -1,27 +1,33 @@
-# Rose Family Ancestral Trust Company (RFATC)
+Rose Family Ancestral Trust Company (RFATC)
 
-Purpose
-This site provides educational information related to private trusts, estate planning concepts, and foundational documentation principles.
+Rose Family Ancestral Trust Company provides private trust creation assistance, educational guidance, and document preparation support for individuals and families seeking to establish lawful private trust structures.
 
-What This Site Is
-- Educational and informational in nature
-- Focused on private trust concepts and structure
-- Intended for private study and lawful self-education
+Our focus is on helping clients understand trust fundamentals, structure private agreements, and organize documentation in alignment with their personal objectives.
 
-What This Site Is Not
-- Not legal advice
-- Not financial advice
-- Not a public offer or solicitation
+---
 
-Topics Covered
-- Private trust fundamentals
-- Trustee and beneficiary roles
-- Recordkeeping and documentation basics
-- General estate planning concepts
+Our Services
 
-Disclaimer
-All information provided is for educational purposes only. Visitors are responsible for their own due diligence and compliance with applicable laws.
+- Private trust creation assistance  
+- Educational guidance on trust structures and administration  
+- Trust document preparation support (non-legal)  
+- Estate and legacy planning concepts  
+- Recordkeeping and organizational frameworks  
 
+All services are provided in a private, educational, and administrative capacity.
+
+---
+
+Important Notice
+
+Rose Family Ancestral Trust Company is **not a law firm**, **does not provide legal advice**, and **does not offer tax advice**.  
+Clients are encouraged to consult licensed legal or tax professionals where required.
+
+This site and all materials are provided for **informational and educational purposes only**.
+
+---
+
+© Rose Family Ancestral Trust Company
 ---
 
 © Rose Family Ancestral Trust Company
